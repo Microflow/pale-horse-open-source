@@ -1,0 +1,1 @@
+Wave after wave entered the city of rust and iron. The guy who brought soap, they strangled him. The twins who translated the Holy Book to Aynglish, poisoned with Aconite. Now who will bring the gold?  #twitterstories
